@@ -9,4 +9,4 @@
 # 𝑅𝑜𝓈𝑒 𝒬𝓊𝒶𝓇𝓉𝓏
 ![Alt Text](https://64.media.tumblr.com/495722f158442241ea2752a38b36d17c/aadc400bd0892302-2f/s1280x1920/8506374ebcb997238caa7770434ffca393c51967.pnj)
 ![Alt Text](https://64.media.tumblr.com/7755f9aa375b5630344ad856b246b3ac/84bbb105b2fa8c87-21/s1280x1920/8015c6c1476b14dc7bc22b9f011332a20d626fe6.gif)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7A6E0&width=435&lines=Hihi+it%E2%80%99s+Ale+or+Evan)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&pause=1000&color=F7A6E0&width=435&lines=Hihi+it%E2%80%99s+Ale+or+Evan)](https://git.io/typing-svg)
